@@ -1,6 +1,6 @@
 # Jonas e a caminhada até o proposito
 
----
+
 
 ## ESTUDO
 
@@ -222,3 +222,12 @@ Se essa mensagem tocou o seu coração, deixe um comentário, compartilhe com al
 
 
 ![Ilustração Bíblica](https://i.pinimg.com/736x/84/0d/e5/840de52b6f065b2bad5bcf204a6cf627.jpg)
+
+Jonas desceu para o porto de Jope (atualmente Jafa, em Israel), como descrito em Jonas 1:3:
+
+"Jonas se levantou para fugir da presença do Senhor para Társis; desceu a Jope, onde encontrou um navio que ia para Társis..."
+
+No mapa, Jope estaria localizada na região costeira de Canaã, próxima ao Mar Mediterrâneo, um pouco ao norte de Gaza e perto de Jerusalém.
+
+![Ilustração Bíblica](https://advbrasil.wordpress.com/wp-content/uploads/2013/05/jonas_mapa.jpg)
+
