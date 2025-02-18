@@ -108,7 +108,7 @@ Cada encontro terá aproximadamente 00h50 Min e seguirá uma estrutura que facil
 - **Desafio:** Escrever um breve testemunho sobre como Deus tem renovado sua vida e compartilhar com o grupo.
 
 ---
+<img src="https://raw.githubusercontent.com/LucasSlessa/Estudos_Biblicos/main/Convite_Celula.png" alt="Convite Célula" width="500">
 
-![Design Canva](https://www.canva.com/design/DAGffm50HZ4/ZRhSNexNzsVvta5SOdFjEw/view)
 
 
