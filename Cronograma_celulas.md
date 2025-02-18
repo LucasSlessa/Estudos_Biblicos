@@ -109,3 +109,6 @@ Cada encontro terá aproximadamente 00h50 Min e seguirá uma estrutura que facil
 
 ---
 
+![Design Canva](https://www.canva.com/design/DAGffm50HZ4/ZRhSNexNzsVvta5SOdFjEw/view)
+
+
